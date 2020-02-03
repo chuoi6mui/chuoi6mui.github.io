@@ -1,2 +1,2 @@
 # chuoi6mui.github.io
-The name tell everythings
+The name tells everythings
